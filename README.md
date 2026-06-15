@@ -23,3 +23,4 @@ Not as a replacement for people — as a way to give small teams leverage they c
 - 🌐 [marvelousco.net](https://marvelousco.net)
 - 💼 [LinkedIn](https://www.linkedin.com/in/jordan-phelps-bab11ab1)
 - 📫 jordan@marvelousco.net
+> *A portion of everything Marvelous Co does funds Val's Pals, an animal sanctuary. The work has a purpose behind it.*
